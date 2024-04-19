@@ -8,7 +8,7 @@
                ACE Engineering College-(2021-25)pursuing;
 
                HOBIEES:
-               sports,reading novels;
+               Playing cricket and indore games,reading novels;
 
                SKILLS:
                C,Python,Java;

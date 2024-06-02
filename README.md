@@ -1,5 +1,5 @@
 # RESUME
-               MR.SUDHAGANI PRANAY
+               MR.SUDHAGANI PRANAY GOUD
                pranaygoud6899@gmail.com
 
                EDUCATIONAL QUALIFICATIONS:
